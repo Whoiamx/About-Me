@@ -4,6 +4,19 @@
 📚 Actualmente aprendiendo Automation...
 📫 Si te gusto mi perfil, contactame por gaastontimchuk@gmail.com o en mi Linkedin.
 
+
+
+Tecnologias:
+
+
+
+
+
+
+
+
+
+
 ![image](https://user-images.githubusercontent.com/64680930/197378393-490e3521-ddee-4172-ac40-f260a7fcb606.png)
 
 
